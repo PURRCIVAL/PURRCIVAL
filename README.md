@@ -1,7 +1,9 @@
 ![](https://files.catbox.moe/osm858.png)
 
 </div><div align="center">
-raver . percival . scratch
+![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&abbreviated=true&label=kisses&color=fa6199&style=plastic)
+
+  raver . percival . scratch
 
   she / him
 
