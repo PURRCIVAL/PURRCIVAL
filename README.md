@@ -21,6 +21,6 @@ socials .
 
 disc : cutekawaiikitten3d
 
-[rentry](https://rentry.co/sweetsnugglezz) . [ata](https://cannibalistic-angel.atabook.org/)
+[rentry](https://rentry.co/sweetsnugglezz) . [ata](https://cannibalistic-angel.atabook.org/) . [guns.lol](https://guns.lol/scratchrecord)
 
 comms closed
