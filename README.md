@@ -2,6 +2,7 @@
 
 </div><div align="center">
 
+![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&label=kisses&color=fa6199&abbreviated=true&style=plastic)
 
   raver . percival . scratch
 
