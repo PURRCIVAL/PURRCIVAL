@@ -1,4 +1,4 @@
-
+![](https://files.catbox.moe/osm858.png)
 
 <!--
 **PURRCIVAL/PURRCIVAL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
