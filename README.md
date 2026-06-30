@@ -12,7 +12,7 @@
 
 ![](https://files.catbox.moe/dxonfy.png)
 
-main fandoms : sonic,fnaf,danganronpa ngl i forgot.
+main fandoms : sonic,fnaf,danganronpa,dark deception.
 
 dni : ragebaiters, preds, proships/darkshiprs ect.
 
